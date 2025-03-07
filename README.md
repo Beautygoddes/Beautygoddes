@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Beautygoddes
+- 👋 Hi, I’m @ladysasha
 - 👀 I’m interested in learning new things 
 - 🌱 I’m currently learning crypto 
 - 💞️ I’m looking to collaborate on many things 
